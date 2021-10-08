@@ -9,7 +9,7 @@
 #### 175 gr witte basterd suiker
 #### ½ ei
 #### 250 gr boter
-#### Voor de vulling
+### Voor de vulling
 #### 125 gr amandelspijs
 #### ½ – 1 ei, losgeklopt
 #### 5 à 6 grote goudrenetten of jonagolds, in partjes
